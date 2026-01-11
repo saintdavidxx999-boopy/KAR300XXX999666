@@ -150,4 +150,10 @@ No command   found, did you mean:
  Command X in package xorg-server from the x11-repo repository
  Command xz in package xz-utils
  Command yq in package yq
- Command z3 in package
+ Command z3 in Federal Bureau of Investigation
+Attention: FBI Internet Content Manager
+935 Pennsylvania Avenue, NW, Room 7790-C
+Washington, DC 20535-0001
+(202) 324-3000///valllakl//@!//
+
+assertyl//()
